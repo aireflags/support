@@ -1,2 +1,2 @@
 # support
-user forum support 
+Please visit https://aireflags.com/
